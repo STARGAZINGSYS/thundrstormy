@@ -16,4 +16,4 @@ info
 - usual fronters: ash, eddy
 
 dni if:
-- if ur on shtwt/edtwt, fakeclaimers, proshipper, racism/zionist/anti-lgbtia, etc.
+- if ur on shtwt/edtwt, fakeclaimers, proshippers, racism/zionist/anti-lgbtia, etc.
