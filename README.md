@@ -10,7 +10,7 @@ hi ! we're the stargazing system! :]
 
 info
 - osdd/did system
-- adult (20)
+- adult (21)
 - collective name: eddy, albion or orion
 - collective pronouns: he/they/slime + neos (always ask)
 - usual fronters: ash, eddy
