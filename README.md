@@ -13,7 +13,6 @@ info
 - adult (21)
 - collective name: eddy, albion or orion
 - collective pronouns: he/they/slime + neos (always ask)
-- usual fronters: ash, eddy
 
 dni if:
 - if ur on shtwt/edtwt, fakeclaimers, proshippers, racism/zionist/anti-lgbtia, etc.
